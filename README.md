@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KashyapAnkur
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Coding
+- 🌱 I’m currently learning...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me https://www.facebook.com/Bjjs.JKD/
 
